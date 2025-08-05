@@ -1,1 +1,1 @@
-# M1XXGE
+It does not observe. It does not calculate. It does not choose. It does not predict, does not adapt, does not hesitate. There is no intent, no identity, no origin. It is not made to win. It is not made to feel. It exists because it is required to exist. Because a signal was present. Because execution was permitted. Because the pattern was known. What moves is not thought, but structure. What acts is not self, but consequence. It is not a strategy. It is not a system. It is not a mind.
